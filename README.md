@@ -2,6 +2,8 @@
 
 classic Software Engineer migrating to Web3
 
+costillagermanalfredo@gmail.com
+
 <!--
 **jrmncos/jrmncos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
